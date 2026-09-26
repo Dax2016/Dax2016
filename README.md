@@ -2,7 +2,7 @@
 - 👀 I’m interested in software development 
 - 🌱 I’m currently learning.
 - 💞️ I’m looking to collaborate on programming  
-- 📫 How to reach me<darchums@hotmail.com>
+- 📫 How to reach me<darlingtonmbawike@gmail.com>
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
